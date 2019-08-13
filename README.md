@@ -1,0 +1,2 @@
+# utopiarelacional
+Algumas ideias
